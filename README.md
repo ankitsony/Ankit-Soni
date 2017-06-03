@@ -1,2 +1,6 @@
 # Ankit-Soni
-An Engineering Student.
+From Rajasthan.
+An Engineering student in NITT.
+
+
+
